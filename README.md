@@ -1,4 +1,4 @@
-# Hi, I'm Zabe! 👨‍💻🔐
-fullynoob
+# YO, I'm Zabe! 
+
 
 
